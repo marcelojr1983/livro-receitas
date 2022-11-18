@@ -1,4 +1,4 @@
-teste um dois tres
+# INGRID ENTES
 
 3 peitos de frango cortados em cubos
 1 dente de alho picado
@@ -12,4 +12,4 @@ sal e pimenta a gosto
 1 copo de creme de leite
 batata palha a gosto
 
-isso não é um teste.
+# NÃO TEMOS AINDA MODO DE PREPARO
