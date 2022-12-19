@@ -10,6 +10,8 @@
 8. cebolinha ou manjericão picados
 
 
+9. deve ser bom = )
+
 ## MUEDO DE PREPARE
 
 - Para começar a fazer a deliciosa receita de omelete, basta você colocar, em uma tigela, os ovos. Misture eles de forma a que todas as gemas se desfaçam nas claras.
