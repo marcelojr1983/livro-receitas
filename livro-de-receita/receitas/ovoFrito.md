@@ -1,0 +1,7 @@
+# INGREDIENTES
+
+- OVO
+
+# MODO DE PREPARO
+
+1. Frite o ovo
